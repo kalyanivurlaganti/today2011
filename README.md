@@ -1,2 +1,9 @@
 # today2011
 repo 2011 for practice
+adding some notes 
+editing read me file
+vfgewfguhewtfyugwhjbvhjdwgv
+kgghfdyuwhfgdsugfud
+bhguydhdskbjhgsdufhw
+bvsghfyuhsdkjnfndgsfhdm
+vbfsdygfjbsbngfudshkfbdsjgfjdsh
